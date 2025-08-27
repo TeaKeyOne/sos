@@ -5,7 +5,7 @@ Skladniki:
 - Srednia cebula,
 - dwa ząbki czosnku,
 - łyżeczka koncentratu pomidorowego,
-- 2 łyżeczki mąki,
+- 2-3 łyżeczki mąki,
 - 2 łyżeczki śmietany 30%,
 - przyprawy: sół, pieprz, papryka, 2x liść laurowy,
 - kostka rosołowa drobiowa,
